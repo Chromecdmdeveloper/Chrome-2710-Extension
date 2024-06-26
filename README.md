@@ -8,4 +8,4 @@ https://github.com/Chromecdmdeveloper/Chrome-2710-Extension/assets/173885437/9fb
 If you wanna collabrate & amp; need support mail us on widevinedeveloper@proton.me
 To buy contact widevinedeveloper@proton.
 
-
+# Messege me at widevinedeveloper@proton or Contact me at Telegram https://t.me/chrome2710cdm_bot
