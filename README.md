@@ -1,6 +1,6 @@
 # Chrome-2710-Extension
 
-Video Proof. Messege me at widevinedeveloper@proton or Contact me Telegram https://t.me/chrome2710cdm_bot
+Video Proof
 https://github.com/Chromecdmdeveloper/Chrome-2710-Extension/assets/173885437/9fb2150f-3260-4162-8d36-a7162f8d3663
 
 # Widevine Chrome 2710 Extension  
